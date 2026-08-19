@@ -3,6 +3,8 @@
 
 - I used Anki, ASBPlayer, and Blender before falling into the rabbit hole commonly known as "software engineering". No one has come to pull me out yet.
 
-- 
+- Currently learning how to reenter society
+
+- I can provide a moderately accurate psychoanalysis free of charge
 
 
